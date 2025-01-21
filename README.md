@@ -2,18 +2,18 @@
 
 ## Set 1: Getting to Know Each Other
 
-Given the choice of anyone in the world, whom would you want as a dinner guest?
-Would you like to be famous? In what way?
-Before making a telephone call, do you ever rehearse what you are going to say? Why?
-What would constitute a "perfect" day for you?
-When did you last sing to yourself? To someone else?
+1. Given the choice of anyone in the world, whom would you want as a dinner guest?
+2. Would you like to be famous? In what way?
+3. Before making a telephone call, do you ever rehearse what you are going to say? Why?
+4. What would constitute a "perfect" day for you?
+5. When did you last sing to yourself? To someone else?
 If you were able to live to the age of 90 and retain either the mind or body of a 30-year-old for the last 60 years of your life, which would you want?
-Do you have a secret hunch about how you will die?
-Name three things you and your partner appear to have in common.
-For what in your life do you feel most grateful?
-If you could change anything about the way you were raised, what would it be?
-Take four minutes and tell your partner your life story in as much detail as possible.
-If you could wake up tomorrow having gained any one quality or ability, what would it be?
+6. Do you have a secret hunch about how you will die?
+7. Name three things you and your partner appear to have in common.
+8. For what in your life do you feel most grateful?
+9. If you could change anything about the way you were raised, what would it be?
+10. Take four minutes and tell your partner your life story in as much detail as possible.
+11. If you could wake up tomorrow having gained any one quality or ability, what would it be?
 
 ## Set 2: Building Intimacy
 
